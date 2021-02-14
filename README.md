@@ -1,6 +1,6 @@
 ### Your fellow cute little femboy :3
-### Fun fact, i'm currently married to vanility
-### Pronouns: she/her
+### Fun fact, i'm currently married to another femboy
+### Pronouns: ?
 ### How to reach me: You can't, i'm to special for you :3
 ### I’m currently working on nothing, since i'm a lazy fuck.
 
